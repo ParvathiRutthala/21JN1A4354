@@ -1,3 +1,3 @@
-Currently,I'm pursuing 3rd year BTech✨
+Currently,I'm pursuing 4th year BTech✨
 
 My branch is Artificial Intelligence💻🚀
